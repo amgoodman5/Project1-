@@ -1,1 +1,2 @@
 This is a test file if you see this on source tree you win
+acon is a meat product prepared from a pig and usually cured.[1][2] It is first cured using large quantities of salt,[2] either in a brine or in a dry packing; the result is fresh bacon (also known as green bacon).[3] Fresh bacon may then be further dried for weeks or months in cold air, or it may be boiled or smoked.[1] Fresh and dried bacon is typically cooked before eating. Boiled bacon is ready to eat, as is some smoked bacon, but may be cooked further before eating.
